@@ -1,0 +1,1 @@
+# Weekly-Parasha-Manager.github.io
